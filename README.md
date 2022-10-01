@@ -9,7 +9,6 @@
 
 📫 How to reach me:
 * [Linkedin](https://www.linkedin.com/in/renzo-daniel-lavado-rivas-76627b103/)
-* [Facebook](https://www.facebook.com/Relari)
 
 💪 Technologies:
 
